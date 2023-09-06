@@ -38,6 +38,6 @@
 </ol>
 <br> 
 
-- Email: xca_@mail.ru
+- Email: sergeykhotkin@gmail.com
 - Telegram: https://t.me/Sergey_Khotkin
 
